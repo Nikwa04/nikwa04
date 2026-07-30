@@ -2,7 +2,7 @@
 
 # Hi, I'm Nikwa 👋
 
-### Aspiring Software Developer | Networking Diploma Student | Self-Taught Builder
+### Aspiring Network Engineer | Network Analyst | Cyber Security | Software Devlopment | Self-Taught Builder
 
 </div>
 
